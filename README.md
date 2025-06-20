@@ -1,4 +1,4 @@
-![8e8fe01d90f5031e97550458cc1ec7e4](https://github.com/user-attachments/assets/835eece1-2acc-4d37-9a8f-4a9a3aa72301)
+
 ![be301b8ec339fd55b58640830d0e1dbf](https://github.com/user-attachments/assets/c875e208-db5b-4d82-8f8f-db3249f01270)
  - ✧ Mis intereses más personales son:
    Leer libros (no suelo hacerlo seguido, pero cuando lo hago lo disfruto mucho), ena bbq dream, scott pilgrim, the beatles, george harrison, las focas, korn, deftones, soad y limp bizkit.
