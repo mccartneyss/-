@@ -1,7 +1,6 @@
 ![e58ba5f43b821c21c521fac98e5e42ff](https://github.com/user-attachments/assets/507e8c09-d4a6-4046-bbbb-a588dd8db69c)
 𝐻𝑖𝑦𝑎.ᐟ
 Acá hay cositas sobre mis gustos y así viste
-[650ce2cd4030aa5b72a611e1fe200beb](https://github.com/user-attachments/assets/c2a7f082-51f7-4205-bae7-190b22b31ba6)
 
 
 Música:
@@ -17,7 +16,7 @@ La moda bohemia, la de los 60s y 70s, el swinging sixties/london, psicodélico y
 
 Personal:
 Actualmente tengo 17 años (sali de acá viejo trolo), soy género fluido y pan. Siéntete libre de usar cualquier pronombre conmigo :p.
-          ॐ
+          
 
 𝑩𝑬𝑨𝑻𝑳𝑬𝑴𝑨𝑵𝑰𝑨 𝑵𝑬𝑽𝑬𝑹 𝑬𝑵𝑫𝑺.ᐟ
 
