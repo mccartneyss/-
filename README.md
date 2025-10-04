@@ -1,3 +1,4 @@
+![fb98228594dd12bb69970921f39d6a45](https://github.com/user-attachments/assets/58efef75-b65d-4e2a-a6e5-06ca63cd7de0)
 ![e58ba5f43b821c21c521fac98e5e42ff](https://github.com/user-attachments/assets/507e8c09-d4a6-4046-bbbb-a588dd8db69c)
 ✦•┈๑⋅⋯ ⋯⋅๑┈•✦✦•┈๑⋅⋯ ⋯⋅๑┈•✦ 
 
@@ -31,7 +32,6 @@ Actualmente tengo 17 años (sali de acá viejo trolo), soy género fluido y pan.
 
 Soy un beatlemaniaco totaaaaaal. Son mi hiperfijación máxima y me hace súper feliz que la gente quiera hablar de ellos conmigo! 1!! 1! ![f2f631290c51b24ddf3641f7b526c51e](https://github.com/user-attachments/assets/302604f1-29a8-4354-ad9e-4260db3d5529)
 
-![84654a57b7c1ef83308ea252d2e294c6](https://github.com/user-attachments/assets/5b6fb3c7-76d2-4439-94ad-209469499375)
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 Extra (Extra texture ref???):
@@ -40,3 +40,5 @@ Sgt. Peppers, Rubber Soul, Revolver, Dark Horse, All Things Must Pass, Extraordi
 
 
 ✦•┈๑⋅⋯ ⋯⋅๑┈•✦✦•┈๑⋅⋯ ⋯⋅๑┈•✦
+
+![84654a57b7c1ef83308ea252d2e294c6](https://github.com/user-attachments/assets/5b6fb3c7-76d2-4439-94ad-209469499375)
