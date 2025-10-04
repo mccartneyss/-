@@ -41,5 +41,6 @@ Sgt. Peppers, Rubber Soul, Revolver, Dark Horse, All Things Must Pass, Extraordi
 
 ✦•┈๑⋅⋯ ⋯⋅๑┈•✦✦•┈๑⋅⋯ ⋯⋅๑┈•✦
 
+BYE BYE.ᐟ 
 ![84654a57b7c1ef83308ea252d2e294c6](https://github.com/user-attachments/assets/5b6fb3c7-76d2-4439-94ad-209469499375)
 ![ee707722c872b6b39c92de5be53afb39](https://github.com/user-attachments/assets/8f2a99cd-a115-4c5e-85d5-94bb45154c94)
