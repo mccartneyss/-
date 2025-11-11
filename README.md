@@ -10,7 +10,6 @@ Acá hay cositas sobre mis gustos y así viste
 Música:
 Bandas de los 60s/70s. Especialmente The Beatles, Wings, Bob Dylan y George Harrison solista. No voy a nombrar más pq hay un montoooooooooon de bandas y artistas que me gustan 💔💔
 
-Tmb me gusta lana del rey, mitski, fiona apple y esooo ae pero tampoco son mi main. 
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
@@ -25,7 +24,7 @@ La moda bohemia, la de los 60s y 70s, el swinging sixties/london, psicodélico y
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 Personal:
-Actualmente tengo 17 años (sali de acá viejo trolo), soy género fluido y pan. Siéntete libre de usar cualquier pronombre conmigo :p.
+Soy género fluido y pan. Siéntete libre de usar cualquier pronombre conmigo :p.
           
 
 𝑩𝑬𝑨𝑻𝑳𝑬𝑴𝑨𝑵𝑰𝑨 𝑵𝑬𝑽𝑬𝑹 𝑬𝑵𝑫𝑺.ᐟ
