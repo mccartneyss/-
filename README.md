@@ -1,7 +1,7 @@
 ![fb98228594dd12bb69970921f39d6a45](https://github.com/user-attachments/assets/58efef75-b65d-4e2a-a6e5-06ca63cd7de0)
 ![e58ba5f43b821c21c521fac98e5e42ff](https://github.com/user-attachments/assets/507e8c09-d4a6-4046-bbbb-a588dd8db69c)
 ✦•┈๑⋅⋯ ⋯⋅๑┈•✦✦•┈๑⋅⋯ ⋯⋅๑┈•✦ 
-
+          🏵🏵🏵
 𝐻𝑖𝑦𝑎.ᐟ
 Acá hay cositas sobre mis gustos y así viste
 
@@ -39,7 +39,7 @@ Sgt. Peppers, Rubber Soul, Revolver, Dark Horse, All Things Must Pass, Extraordi
 
 
 ✦•┈๑⋅⋯ ⋯⋅๑┈•✦✦•┈๑⋅⋯ ⋯⋅๑┈•✦
-
+          🏵🏵🏵
 BYE BYE.ᐟ 
 ![84654a57b7c1ef83308ea252d2e294c6](https://github.com/user-attachments/assets/5b6fb3c7-76d2-4439-94ad-209469499375)
 ![ee707722c872b6b39c92de5be53afb39](https://github.com/user-attachments/assets/8f2a99cd-a115-4c5e-85d5-94bb45154c94)
