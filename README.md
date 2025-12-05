@@ -31,7 +31,7 @@ La moda bohemia, la de los 60s y 70s, el swinging sixties/london, psicodélico y
 
 Personal:
 Soy género fluido y pan. Siéntete libre de usar cualquier pronombre conmigo :p.
-          
+ Llámame Pipis, Pepper o Crosses ^3^       
 
 𝑩𝑬𝑨𝑻𝑳𝑬𝑴𝑨𝑵𝑰𝑨 𝑵𝑬𝑽𝑬𝑹 𝑬𝑵𝑫𝑺.ᐟ
 
